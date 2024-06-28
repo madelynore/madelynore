@@ -7,6 +7,12 @@ My dissertation research is on finding the environmental drivers of genomic chan
 
 
 📫 Contact me: mjo234 [at] cornell.edu 
-🖇️ Read my work: https://www.researchgate.net/profile/Madelyn-Ore
+
+🖇️ Read my work: 
+[Research Gate](https://www.researchgate.net/profile/Madelyn-Ore)
+[Google Scholar](https://scholar.google.com/citations?user=6upHReIAAAAJ&hl=en)
+
+                
+
 
 
